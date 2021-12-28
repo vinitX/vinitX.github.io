@@ -1,1 +1,1 @@
-# vinitX.github.io
+# vinitx.github.io
